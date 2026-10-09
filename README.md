@@ -1,3 +1,4 @@
+My Discord: .krat0s._.    DM me if you find any bugs
 <img width="1124" height="644" alt="image" src="https://github.com/user-attachments/assets/d3410df5-006d-4453-8604-f8031df23dfe" />
 <img width="877" height="637" alt="image" src="https://github.com/user-attachments/assets/5f817ba2-c99b-4812-9bb7-400607cbee37" />
 <img width="871" height="644" alt="image" src="https://github.com/user-attachments/assets/7607144c-4353-4e0e-b7a4-5f80fef2ff3a" />
